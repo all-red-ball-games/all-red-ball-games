@@ -1,2 +1,0 @@
-## i know u want red ball 3 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTmiUpScTj6Y03tXHHJzaAzJbJO7L99xf9REg&amp;s" alt="Red Ball Game Meme | TikTok"/> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTmiUpScTj6Y03tXHHJzaAzJbJO7L99xf9REg&amp;s" alt="Red Ball Game Meme | TikTok"/> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTmiUpScTj6Y03tXHHJzaAzJbJO7L99xf9REg&amp;s" alt="Red Ball Game Meme | TikTok"/>
